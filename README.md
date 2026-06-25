@@ -1,5 +1,5 @@
 
-# feiniao feiniao飞鸟加速机场官方地址(2026年6月24日更新)
+# feiniao 飞鸟加速机场官方地址(2026年6月24日更新)
 最新地址01：[b.fnxlcc.live](https://join.xlcc.asia?code=3068933)</br>
 官方入口地址01：[b.fnxlcc.live](https://b.fnxlcc.live/?code=3068933)</br>
 官方入口地址02：[portal.xlcc.plus](https://portal.xlcc.plus/?code=3068933)</br>
