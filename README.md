@@ -4,7 +4,7 @@
 官方入口地址01：[b.fnxlcc.live](https://b.fnxlcc.live/?code=3068933)</br>
 官方入口地址02：[portal.xlcc.plus](https://portal.xlcc.plus/?code=3068933)</br>
 ## 邀请码
-~~用邀请码注册额外赠送免费时长30分钟~~</br>
+用邀请码注册额外赠送免费时长30分钟</br>
 ```bash
 3068933
 ```
