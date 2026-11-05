@@ -1,6 +1,6 @@
 🇨🇳 [中文](README.md) | 🇺🇸 English | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
-# Feiniao VPN Official Website (Updated November 4, 2026)
+# Feiniao VPN Official Website (Updated November 5, 2026)
 
 Feiniao VPN Official Website<br>
 Latest Address 01: [b.fnxlcc.live](https://to.iix.im/fb03)<br>
