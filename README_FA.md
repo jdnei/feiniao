@@ -1,5 +1,5 @@
  🇨🇳 [中文](README.md) | 🇺🇸 [English](README_EN.md) | 🇷🇺 [Русский](README_RU.md) | 🇮🇷 فارسی
-# آدرس رسمی VPN فِینیائو (Feiniao) - (به‌روزرسانی 8 نوامبر 2026)
+# آدرس رسمی VPN فِینیائو (Feiniao) - (به‌روزرسانی 9 نوامبر 2026)
 وب‌سایت رسمی VPN فِینیائو (Feiniao)<br>
 جدیدترین آدرس ۰۱: [b.fnxlcc.live](https://to.iix.im/fb03)<br>
 آدرس ورودی رسمی ۰۱: [b.fnxlcc.live](https://to.iix.im/fb02)<br>
