@@ -1,7 +1,7 @@
 🇨🇳 中文 | 🇺🇸 [English](README_EN.md) | 🇷🇺 
 [Русский](README_RU.md) | 🇮🇷 [فارسی](README_FA.md)
 
-# feiniao 飞鸟加速机场官方地址(2026年11月9日更新)
+# feiniao 飞鸟加速机场官方地址(2026年11月10日更新)
 feiniao 飞鸟加速机场官网地址</br>
 
 ✅只支持客户端</br>
